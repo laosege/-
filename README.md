@@ -1,6 +1,6 @@
-laosege系列 最新地址 最後更新時間 (2020.07.07)
+laosege系列 最新地址 最後更新時間 (2020.08.01)
 
-Z1：https://www.790nz.com
+Z1：https://www.790zs.com
 
 Z2：https://www.890xi.com
 
