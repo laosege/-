@@ -1,12 +1,12 @@
-laosege系列 最新地址 最後更新時間 (2020.08.01)
+laosege系列 最新地址 最後更新時間 (2020.08.04)
 
 Z1：https://www.790zs.com
 
-Z2：https://www.890xi.com
+Z2：https://www.890yi.com
 
-Z3：https://www.667nx.com
+Z3：https://www.667nz.com
 
-D1：https://www.210zx.com
+D1：https://www.210pz.com
 
 如以上地址都無法訪問，請用郵箱向xx400se@gmail.com發任意消息，即可獲取最新地址！
 
