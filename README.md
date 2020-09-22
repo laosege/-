@@ -1,12 +1,12 @@
-laosege系列 最新地址 最後更新時間 (2020.09.05)
+laosege系列 最新地址 最後更新時間 (2020.09.23)
 
-Z1：https://www.117ax.com
+Z1：https://www.117sx.com
 
-Z2：https://www.890sx.com
+Z2：https://www.190sk.com
 
-Z3：https://www.667sn.com
+Z3：https://www.667sw.com
 
-D1：https://www.210zs.com
+D1：https://www.210nx.com
 
 如以上地址都無法訪問，請用郵箱向xx400se@gmail.com發任意消息，即可獲取最新地址！
 
