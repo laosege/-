@@ -1,12 +1,12 @@
-laosege系列 最新地址 最後更新時間 (2020.10.14)
+laosege系列 最新地址 最後更新時間 (2020.11.12)
 
-约 汉 最新地址：https://www.170ax.com
+约 汉 最新地址：https://www.170sx.com
 
-野要看最新地址：https://www.890vx.com
+野要看最新地址：https://www.990sk.com
 
-后 院 最新地址：https://www.667td.com
+后 院 最新地址：https://www.116ax.com
 
-老色哥最新地址：https://www.210kz.com
+老色哥最新地址：https://www.211tw.com
 
 如以上地址都無法訪問，請用郵箱向xx400se@gmail.com發任意消息，即可獲取最新地址！
 
