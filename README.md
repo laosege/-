@@ -1,12 +1,12 @@
-laosege系列 最新地址 最後更新時間 (2020.11.26)
+laosege系列 最新地址 最後更新時間 (2020.12.10)
 
-约 汉 最新地址：www.170nx.com
+约 汉 最新地址：www.137bz.com
 
-野要看最新地址：www.890td.com
+野要看最新地址：www.890vc.com
 
-后 院 最新地址：www.160ax.com
+后 院 最新地址：www.145sa.com
 
-老色哥最新地址：www.211we.com
+老色哥最新地址：www.210sx.com
 
 如以上地址都無法訪問，請用郵箱向 xx400se@gmail.com 發任意消息，即可獲取最新地址！
 
