@@ -1,12 +1,12 @@
-laosege系列 最新地址 最後更新時間 (2021.03.18)
+laosege系列 最新地址 最後更新時間 (2021.04.10)
 #
-约 汉 最新地址：http://www.160pz.com   (如遇无法访问，前面换成https尝试)
+约 汉 最新地址：http://www.167nx.com   (如遇无法访问，前面换成https尝试)
 
-野要看最新地址：http://www.128es.com   (如遇无法访问，前面换成https尝试)
+野要看最新地址：http://www.180nx.com   (如遇无法访问，前面换成https尝试)
 
-后 院 最新地址：http://www.170us.com   (如遇无法访问，前面换成https尝试)
+后 院 最新地址：http://www.145sz.com   (如遇无法访问，前面换成https尝试)
 
-老色哥最新地址：http://www.210es.com   (如遇无法访问，前面换成https尝试)
+老色哥最新地址：http://www.210fs.com   (如遇无法访问，前面换成https尝试)
 #
 如以上地址都無法訪問，請用郵箱向 xx400se@gmail.com 發任意消息，即可獲取最新地址！
 
